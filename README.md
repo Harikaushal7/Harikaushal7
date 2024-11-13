@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Harikaushal7
+- 👋 Hi, I’m Hari Kaushal
 - 
 - 👀 I’m interested in development and creation
 - 
